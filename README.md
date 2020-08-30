@@ -41,5 +41,5 @@
 
 
 ## 😃 Thank you for viewing my application ##
-> I hope you enjoyed the little walk through of the Sleep Inn Form. If you have any questions and/or concerns let me know! Don't forget to leave a star⭐️.
+> I hope you enjoyed the little walk through of the Hopkin's Film School Registration Form Application. If you have any questions and/or concerns let me know! Don't forget to leave a star⭐️.
 
